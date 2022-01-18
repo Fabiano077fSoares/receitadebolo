@@ -6,3 +6,4 @@
 - 10 morangos picados
 - 200 gramas de farinha de trigo
 - 2 Colheres de açucar de confeiteiro
+- 1/2 Lata de leite condençado
